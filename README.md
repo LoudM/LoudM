@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @LoudM
+- 👀 I’m interested in NFTs
+- 🌱 I’m currently learning to make minting website
+- 💞️ I’m looking to collaborate on NFT Projects
